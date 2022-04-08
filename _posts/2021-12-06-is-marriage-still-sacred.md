@@ -16,16 +16,16 @@ My opinion is that aspects of the free market have seeped into marriage. Marriag
 
 Steven Horwitz's article "Capitalism and the Family" explains the following points:
 
-    In agricultural societies, marriages were primarily economically motivated. To survive, children worked in the fields, and men and women had well-defined divisions of labor.
-    Wage labor meant families shifted from working in the household to working in the market. Industrial growth meant families became wealthier and could afford to withdraw child labor and female labor from the market.
-    The "traditional" family formed as men worked in the public sphere of work, and women worked in the private sphere of the household. Children became consumers rather than producers.
-    Technology made household tasks easier pushing women back into the public sphere of work.
-    Men and women now both participate in the labor market. They are also wealthier as real wages have increased.
-    Romantic love and love-based marriage emerged as economic considerations declined. Thus, the demand for easier ways of leaving marriages increased.
+- In agricultural societies, marriages were primarily economically motivated. To survive, children worked in the fields, and men and women had well-defined divisions of labor.
+- Wage labor meant families shifted from working in the household to working in the market. Industrial growth meant families became wealthier and could afford to withdraw child labor and female labor from the market.
+- The "traditional" family formed as men worked in the public sphere of work, and women worked in the private sphere of the household. Children became consumers rather than producers.
+- Technology made household tasks easier pushing women back into the public sphere of work.
+- Men and women now both participate in the labor market. They are also wealthier as real wages have increased.
+- Romantic love and love-based marriage emerged as economic considerations declined. Thus, the demand for easier ways of leaving marriages increased.
 
 In particular, these points were interesting:
 
-    Today, many people talk about men and women both participating in the labor market as an entirely new idea arising from the last half century. However, during the early stages of the industrial revolution, men and women both worked in the factories. The "traditional" family emerged as a luxury for women to withdraw back into the household. Now the trend is reversing again as women are going back into the labor market.
-    The reason for higher divorces rates isn't no-fault divorce laws. Rather, no-fault divorce laws were the result of the higher demand for easier divorces. The root cause of higher divorce rates was the shift from economically-based marriages to love-based marriages. Emotional fulfillment is more fickle than economic stability.
+- Today, many people talk about men and women both participating in the labor market as an entirely new idea arising from the last half century. However, during the early stages of the industrial revolution, men and women both worked in the factories. The "traditional" family emerged as a luxury for women to withdraw back into the household. Now the trend is reversing again as women are going back into the labor market.
+- The reason for higher divorces rates isn't no-fault divorce laws. Rather, no-fault divorce laws were the result of the higher demand for easier divorces. The root cause of higher divorce rates was the shift from economically-based marriages to love-based marriages. Emotional fulfillment is more fickle than economic stability.
 
 To the reader, is marriage sacred to you? Why do you think divorces have increased?
